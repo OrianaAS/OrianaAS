@@ -2,6 +2,7 @@
 - 👀 I’m interested in aprender mucho
 - 🌱 I’m currently learning programación
 - 📫 How to reach me : IG: oriana_salinas13
+-                       Tel: 2604-002875
 - 😄 Pronouns: Eyen
 - ⚡ Fun fact: Mi animal favorito son las tortugas
 
